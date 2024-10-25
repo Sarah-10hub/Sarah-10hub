@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Sarah-10hub
+- 👀 I’m interested in tourism management 
+- 🌱 I’m currently learning tourism management
+- 💞️ I’m looking to collaborate on tourism or hospitality project
+- 😄 Pronouns: she
+- ⚡ Fun fact: "I once traveled to Turkey and tried skiing." !
